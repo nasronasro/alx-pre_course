@@ -1,1 +1,1 @@
-updated from github.come
+updated from github.com
